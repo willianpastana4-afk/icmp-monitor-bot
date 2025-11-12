@@ -1,0 +1,1 @@
+<the optimized script code from previous message>
